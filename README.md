@@ -1,2 +1,2 @@
-# Eglise-Baptiste-Les-Bien-Aim-s-de-J-sus-de-Kpogan
+# Eglise Baptiste Les Bien-Aimés de Jésus de Kpogan
 Church Website
